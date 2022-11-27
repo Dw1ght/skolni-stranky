@@ -8,4 +8,5 @@
 ### >> 4) stundentsky zivot, fotky, uspechy
 ### >> 5) kontakt
 
-cus leni
+kys
+nemam rad nehr
