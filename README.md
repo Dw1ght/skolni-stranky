@@ -8,4 +8,4 @@
 ### >> 4) stundentsky zivot, fotky, uspechy
 ### >> 5) kontakt
 
-kys
+cus leni
